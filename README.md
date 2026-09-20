@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @deshi1240
 - 👀 I’m interested in tech, reading, gaming and my family
-- 🌱 I’m currently learning software engineering at UWI
+- 🌱 I’m currently learning information technology at NJIT
 - 💞️ I’m looking to collaborate on any projects i can get my hands on.
 - 📫 How to reach me instagram at deshi_jf 
 
